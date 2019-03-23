@@ -1,3 +1,4 @@
+![TOP WINNER](http://myazo.wailau.net/data/34613eaaa0b3f981bcc2c63e.png)
 ![game_pic](http://myazo.wailau.net/data/d6fd715bce20027d62317341.png)
 
 # C-O-M-P-4-7-2
